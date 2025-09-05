@@ -1,1 +1,0 @@
-# Foto-Igor.Samyra
